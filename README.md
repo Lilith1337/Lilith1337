@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Lilith
-- 👀 I’m interested in Networking and Low Level Programming
+- 👀 I’m interested in Transmitters and Low Level Programming
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: im fucking retarded as hell
